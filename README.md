@@ -17,7 +17,7 @@
 - 📗 Creator of Balam Hosting
 <br>
 
-## Proyect *bombitas*
+## creator of
 <table>
 <tr>
 <td width="50%">
